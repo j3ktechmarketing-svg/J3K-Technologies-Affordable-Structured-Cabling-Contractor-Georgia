@@ -52,6 +52,6 @@ Whether you need an **Affordable Structured Cabling Contractor Georgia - Service
 
 With years of experience as a **Structured Cabling Service Provider** in Georgia, J3K Technologies takes pride in delivering efficient and affordable network cabling solutions. From startups to corporate offices, our goal is to simplify network connectivity and strengthen communication systems across Georgia. Our focus on quality, neat design, and timely project completion makes us the preferred **Installation Partner and Contractor** for businesses of all sizes.
 
-Trust J3K Technologies to handle your structured cabling needs — where every connection counts.
+Trust J3K Technologies to handle your structured cabling needs- where every connection counts.
 
 ---
